@@ -1,9 +1,5 @@
 <div id="" align="center">
 
-^_^
-
-.
-
 ![homestuck-john-egbert](https://github.com/user-attachments/assets/1c0717b0-4625-4020-9cca-134f7946ce8e)
 
 ![загруженное (3)](https://github.com/user-attachments/assets/a7005877-a313-46e4-8b35-b75c4c5e5dfa)
